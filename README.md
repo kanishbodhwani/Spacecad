@@ -3,8 +3,6 @@
 
 ### Your own learning space.  
 
-Knowledge shared is Knowledge gained
-
 ### Join our team. 
 
 
